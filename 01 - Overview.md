@@ -1,5 +1,5 @@
 ## TL;DR
-- Baluja Vhail: 38-year-old Tortle Samurai, originally from a simple tribal background.
+- Baluja Vhail: 39-year-old Tortle Samurai, originally from a simple tribal background.
 - Transported to Neon Kamigawa at a young age, believes it to be the afterlife or a dream.
 - True origin: Avatar of an evil god, sentenced to eternal prison in the Tower.
 - Tower connects Baluja to different lives of strife and struggle, each an opportunity for redemption.
