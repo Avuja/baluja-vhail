@@ -12,7 +12,7 @@
 
 ## Character Summary
 
-Baluja Vhail, a 38-year-old Tortle Samurai, is a complex character with a mysterious past and a journey of redemption that spans across different planes and time periods. Originally from a simple tribal background, Baluja found himself inexplicably transported to the future plane of Neon Kamigawa at a young age. He initially believed Kamigawa to be the afterlife due to the presence of Kami, but eventually came to view his experiences as a dream, especially after encountering the party's diverse cast of characters and learning about Planeswalking, a power he unknowingly possesses.
+Baluja Vhail, a 39-year-old Tortle Samurai, is a complex character with a mysterious past and a journey of redemption that spans across different planes and time periods. Originally from a simple tribal background, Baluja found himself inexplicably transported to the future plane of Neon Kamigawa at a young age. He initially believed Kamigawa to be the afterlife due to the presence of Kami, but eventually came to view his experiences as a dream, especially after encountering the party's diverse cast of characters and learning about Planeswalking, a power he unknowingly possesses.
 
 Unbeknownst to the party, Baluja's true origin is shrouded in mystery. In his past life, he was the avatar of an evil god, serving as a villainous general in the god's army. After being defeated by a group of good-aligned gods, Baluja was sentenced to an eternal prison in the Tower, a place that connects him to different lives of strife and struggle, each one presenting an opportunity for him to atone for his past misdeeds.
 
