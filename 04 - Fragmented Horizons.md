@@ -1,3 +1,5 @@
+Automatically Generated with DeepSeek and Bourbon
+
 ## TL;DR
 - Post-"Brief Respite," Baluja experiences fragmented memories of his Tower lives, blending with his current existence.
 - Now 40 years old (elderly for a Tortle), his physical and mental decline is accelerating, marked by worsening scars and confusion.
@@ -44,5 +46,3 @@ Aiding Ore’s mushroom folk resonated deeply with Baluja’s redemption arc:
 
 *“I used to think doors were for walking through. Now I wonder if they’re just fancy walls.”*  
 — Baluja, after staring at an innocuous closet for 10 minutes
-
-Generated with DeepSeek and Bourbon
