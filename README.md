@@ -13,3 +13,8 @@ Baluja Vhail, a Tortle in for the time of his lives as he navigates the challeng
 > Going through the door again only to wind up at night in... [(Future) Dominaria?]
 
 ###### Storytelling prose provided by: [Anthrophic's Claude3 Opus LLM](https://www.anthropic.com/news/claude-3-family)
+
+### 2025 :  STILL KICKING
+### 04 - [After the Mar'Elanor](https://github.com/Avuja/baluja-vhail/blob/main/04%20-%20Fragmented%20Horizons.md)
+
+###### New year | New LLM: Powered by DEEPSEEK~
